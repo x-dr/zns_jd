@@ -9,3 +9,8 @@ AUTOJS-JD-炸年兽
 
 
 > 脚本转载自:[https://www.52pojie.cn/thread-1575888-1-1.html](https://www.52pojie.cn/thread-1575888-1-1.html) 
+
+
+
+
+### 如有侵权请联系删除
